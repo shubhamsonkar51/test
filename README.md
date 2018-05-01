@@ -1,1 +1,0 @@
-not only a test but also a fucking grusome alogorithm. i know i am writing shit this time but it is because i dont have anything else coming up in my mind. sorry for the inconvinience caused. enjoy the flight. Luftansa
